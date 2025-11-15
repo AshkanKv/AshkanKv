@@ -43,7 +43,7 @@
 
 - وب‌سایت: [ashkankashef.ir](https://ashkankashef.ir)  
 - ایمیل: **mail@ashkankashef.ir**  
-- لینکدین: [LinkedIn](www.linkedin.com/in/ashkan-kashef-vazifeh-9339a2297)  
+- لینکدین: (www.linkedin.com/in/ashkan-kashef-vazifeh-9339a2297)  
 -)
 
 ---
